@@ -1,4 +1,4 @@
-## Rashika Kumari (Information Technology, 2021-2015)
+## Rashika Kumari (Information Technology, 2021-2025)
 
 ### Contributions:
 #### 1. I have written many contents for the social media post, for organizing events, reports for newspaper articles, and many other documentation works.
